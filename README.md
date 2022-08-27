@@ -12,4 +12,4 @@ Did hw again, Then did a stats project with kevin, soohyuk, and saahil. Joseph s
 
 Went to bed. But for like 1.5 hours we played a game of naming countries and animals given one letter. 
 
-Then slept at like 2. Woke up at 5.
+Then slept at like 2.
